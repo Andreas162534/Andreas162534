@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Andreas162534
-- 👀 I’m interested in playing the piano and waterpolo.
+- 👀 I’m interested in playing the piano and volleyball.
 - 🌱 I’m currently learning spanish.
 - 💞️ I’m looking to collaborate with startups in Silicon Valley.
 - 📫 How to reach me ...
